@@ -45,4 +45,18 @@ During my **Internship**, as a **Virtual Administrative Assistant**, at **Skill2
 2025 | Professional Certification, Virtual Assistant  
 
 ---
-##### **KEY SKILLS**  
+##### **KEY SKILLS / CORE COMPETENCIES**  
+- Soil and Soil nutrient test  
+- Soil and Plant Analysis
+- Data Cleaning and Wrangling  
+- Data Visualization  
+- Statistical Analysis and Hypothesis Testing  
+- Microsoft Office Suite 
+- Calendar and Email Management  
+- Executive and Administrative Support 
+- Data Entry and File Organization  
+- Critical Thinking | Problem-Solving | Collaboration  
+
+---
+##### **REFERNCES**  
+*Available upon request*  
